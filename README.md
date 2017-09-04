@@ -1,1 +1,1 @@
-# erifry.github.io
+# EriFry.github.io
